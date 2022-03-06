@@ -4,4 +4,10 @@
 
     b. If you don't understand something, don't be afraid to put in 10-20 min researching it. There is a wealth of information available and some independent research can often compliment the curriculum by clarifying ideas and concepts in a new light.
 
-2. Add at least one shoutout to someone who has helped you, supported you, or just been a positive presence in the last two weeks!
+2. Two strategies to try
+
+    a. Maintain consistency/maximize efficiency with note-taking. Setting up good habits early is critical for overall quality of learning.
+
+    b. Form relationships with, reach out to peers and teachers in order to form a network, have other minds to bounce ideas off of, talk through new ideas, become inspired, put concepts into a new light for easier digestion. Learning difficult concepts with others will always beat learning alone. Facilitate a culture of learning.
+
+3. Add at least one shoutout to someone who has helped you, supported you, or just been a positive presence in the last two weeks!
