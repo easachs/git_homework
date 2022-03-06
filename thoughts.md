@@ -10,4 +10,4 @@
 
     b. Form relationships with, reach out to peers and teachers in order to form a network, have other minds to bounce ideas off of, talk through new ideas, become inspired, put concepts into a new light for easier digestion. Learning difficult concepts with others will always beat learning alone. Facilitate a culture of learning.
 
-3. Add at least one shoutout to someone who has helped you, supported you, or just been a positive presence in the last two weeks!
+3. Shout out - None of this (Turing, what I have learned in the first two Mod 0 sessions) would have been possible without the support from my girlfriend, my family, and my friends. While I have not formally started Mod 0 with the rest of my cohort, I would like to give them a pre-shout out for the support and guidance we will lend each other.
