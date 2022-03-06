@@ -14,5 +14,3 @@
 
 
 Session 3 - Try It: Full Git Workflow Practice
-
-Practice pushing and pulling from Github using Git repeatedly
